@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vikrant0701
-- 👀 I’m interested in play vollyball
+- 👀 I’m interested in playing volleyball
 - 🌱 I’m currently learning BTech in MGMCEO Nanded
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
